@@ -1,0 +1,2 @@
+# Wases
+Cari kawan
